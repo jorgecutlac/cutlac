@@ -1,1 +1,0 @@
-Um estudante de programação
